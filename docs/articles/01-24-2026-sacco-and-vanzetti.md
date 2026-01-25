@@ -39,6 +39,6 @@ demographics and changing local politics.
 
 ### Paper Link 
 
-Paper not yet published. Written by Giorgio Bertellini.
+Paper not yet published. Coauthored alongside Doctor Giorgio Bertellini.
 
 Download the paper here: **[PDF](http://google.com)**. <-- Placeholder link
